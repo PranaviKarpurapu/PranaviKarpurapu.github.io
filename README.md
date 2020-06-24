@@ -1,2 +1,0 @@
-# Pranavi-Resume
- 
